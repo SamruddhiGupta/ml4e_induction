@@ -2,6 +2,8 @@ Samruddhi Gupta
 Roll no.- 125AI0036
 B.tech 1st Year Artificial Intelligence
 Topic- A portfolio of your Photography
+Contact- +91 9892377455
+8g16samruddhigupta@gmail.com
 
 
 Features
